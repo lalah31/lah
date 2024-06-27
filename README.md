@@ -8,6 +8,6 @@ Meu nome é Lays Rodrigues
 
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-- # entre em contato comigo!
+- # Entre em contato comigo!
 - @00001093645179sp@al.educacao.sp.gov.br 
 
